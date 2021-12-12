@@ -1,4 +1,4 @@
-My name is Ashish Dewade.
+My name is Ashish Dewade Dewade.
 I studied mechnical engineering from PCCOE.
 Now here I am making my personal profile.
 
