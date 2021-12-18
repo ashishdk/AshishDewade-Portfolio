@@ -10,3 +10,7 @@ Now I know
 1. microsoft visual code
 1. repl.it
 
+I read few books. Details are as below
+1. Alchemist
+2. Rich dad poor dad
+3. Stay hungry Stay foolish
